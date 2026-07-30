@@ -1,4 +1,4 @@
-# Hi, call me Sagar
+# Hi, I'm Bimalsagar, reach out to me:
 
 • Portfolio: https://bimalsagar.github.io/ <br>
 • Github: https://github.com/bimalsagar <br>
